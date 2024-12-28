@@ -13,34 +13,34 @@ Are you ready to embark on a magical musical adventure? Let’s get started!
 - [Incredibox - BANANA (UPDATE KOCREA) alive remix) but normal](https://gorillatagbanana.com/gorilla-tag-banana-4)
 
 # Game Features
-Dynamic Animation System
+## Dynamic Animation System
 Characters pulse with jungle energy in Gorilla Tag Banana Incredibox
 
-Primal Sound Design
+## Primal Sound Design
 Original beats enhanced with tribal effects in Gorilla Tag Banana Incredibox
 
-Visual Transformation
+## Visual Transformation
 Watch as characters display energetic expressions in Gorilla Tag Banana Incredibox
 
-Hidden Combinations
+## Hidden Combinations
 Discover exciting musical combinations in Gorilla Tag Banana Incredibox
 
-Jungle Mechanics
+## Jungle Mechanics
 Experience how primal energy flows between characters in Gorilla Tag Banana Incredibox
 
-Multiple Performances
+## Multiple Performances
 Different outcomes based on character combinations in Gorilla Tag Banana Incredibox
 
-Secret Characters
+## Secret Characters
 Unlock special primal variants in Gorilla Tag Banana Incredibox
 
-Progressive Complexity
+## Progressive Complexity
 Face increasing challenges as jungle energy builds in Gorilla Tag Banana Incredibox
 
-Achievement System
+## Achievement System
 Master different aspects of primal performances in Gorilla Tag Banana Incredibox
 
-Community Challenges
+## Community Challenges
 Weekly events for the most energetic jungle compositions in Gorilla Tag Banana Incredibox
 
 # How to Play?
